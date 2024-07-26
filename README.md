@@ -1,4 +1,4 @@
-## i am very beatiful💛💚 
+## i am very handsome💛💚 
 
 
 **joaoweber9/joaoweber9** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
