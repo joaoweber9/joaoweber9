@@ -8,7 +8,7 @@ be always friendly
 - ❤️‍🔥I’m from my  lord jesus
 - 🏐 player 
 - 📓 I’m clever
-- 🎵 love muic
+- 🎵 love music
 - 💬 Ask me about volei or church
 - 💛💙🤎💚🤍💜🧡
 
